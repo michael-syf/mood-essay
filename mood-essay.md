@@ -1,0 +1,5 @@
+1. Make English as your working language.(让英语成为你的工作语言)
+2. Practice makes perfect.(熟能生巧)
+3. All experience comes from mistakes.(所有经验都源于你犯过的错误)
+4. Don't be one of the leeches.(不要做伸手党)
+5. Edit outstanding or out.(要么出众，要么出局)
